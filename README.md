@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @razvanburz
+- 👀 I’m the "IoT guy"
+- 💞️ I’m looking to collaborate on awesome projects with cool companies
+- 📫 How to reach me go to burz.ro/contact
+- 😄 Pronouns: he/him
